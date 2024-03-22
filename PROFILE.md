@@ -1,1 +1,1 @@
-GP
+Welcome to my GitHub profile!
